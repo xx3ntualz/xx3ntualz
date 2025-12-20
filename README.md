@@ -1,6 +1,6 @@
 ![alt text](https://files.catbox.moe/iu5zdp.png)
 
-   ![alt text](https://i.pinimg.com/originals/3a/2f/76/3a2f764ae167cd78b767df4c1367231f.jpg)
+   ![alt text](https://images3.alphacoders.com/131/thumb-1920-1311443.jpg)
   <p align="center">
      read my strawp and sign ata plz
 
