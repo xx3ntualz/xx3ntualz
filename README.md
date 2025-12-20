@@ -8,4 +8,4 @@
 
 
 
-![alt text](https://i.ibb.co/6Z9kf95/tumblr-ee7fb9a91c18636584dd61c2cbbce154-58b49aa4-400.webp)
+![alt text](https://i.ibb.co/6Z9kf95/tumblr-ee7fb9a91c18636584dd61c2cbbce154-58b49aa4-400.webp) ![alt text](https://plasticdino.net/blinkie/friends.gif)
