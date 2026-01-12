@@ -1,4 +1,4 @@
-   ![alt text](https://files.catbox.moe/md6uwe.jpg)
+   ![alt text](https://files.catbox.moe/gy5ko8.jpg)
   <p align="center">
       <img src="https://files.catbox.moe/z2n7y3.gif" /> $\color{#689396}{\textbf{ sign ata plz CHECK OUT MY RENTRY TOO !!!!}}$  <img src="https://files.catbox.moe/qifz3p.gif" />
 </p>
